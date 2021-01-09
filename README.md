@@ -1,1 +1,6 @@
-# wpu-resolusi
+apa
+saja
+yang 
+dilakukan
+aku
+untuk
