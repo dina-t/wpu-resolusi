@@ -4,3 +4,7 @@ yang
 dilakukan
 aku
 untuk
+membuat
+hidup
+lebih 
+baik
